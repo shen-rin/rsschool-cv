@@ -1,8 +1,9 @@
+
 # Nastasia Lebedeva
 
 ## Contacts
     • Gmail: 7760845@gmail.com
-    • GitHub: shen-rin
+    • GitHub: [shen-rin](https://github.com/shen-rin)
     • +7(921)7760845 
     
 ## About me
