@@ -7,7 +7,7 @@
     • +7(921)7760845 
     
 ## About me
-    •  Moving from graphic design to more technical field. Eager to gain new skills.
+    •  Moving from graphic design to more technical field. Eager to gain new skills and meet new people.
     
 ## Skills
     • Adobe (Photoshop & Illustrator)
